@@ -9,3 +9,7 @@
 ![](https://media.tenor.com/3UvnQWmVmUYAAAAi/doge.gif)
 
 ## (esy)
+
+![](https://media1.tenor.com/m/uVqRHmHvEHQAAAAC/garfield-garfield-meme.gif)
+
+## (egw)
